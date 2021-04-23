@@ -26,6 +26,6 @@ Quote:
 > where you’re from,   
 > your skin colour,   
 > gender identity:   
-> **speak yourself**."_
+> **speak yourself**."_  
       [Kim Namjoon, 2018.](https://www.unicef.org/press-releases/we-have-learned-love-ourselves-so-now-i-urge-you-speak-yourself)
 

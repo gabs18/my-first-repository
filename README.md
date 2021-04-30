@@ -29,5 +29,10 @@ Quote:
 > **speak yourself**."_  
      
    [Kim Namjoon, 2018.](https://www.unicef.org/press-releases/we-have-learned-love-ourselves-so-now-i-urge-you-speak-yourself)
+   
+   
+![alt text](ZiemannEtAlFig1.png)
+
+
 
 
